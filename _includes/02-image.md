@@ -1,0 +1,1 @@
+![Fire Truck](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.sandiegouniontribune.com%2Fcommunities%2Fnorth-county%2Fstory%2F2019-05-29%2Fcounty-goes-to-court-to-find-missing-fire-truck-as-legal-tussle-with-volunteer-firefighters-heats-up&psig=AOvVaw1r7ZhX9OS39kMLvkSUu4i6&ust=1604894148472000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCKiH-N-G8uwCFQAAAAAdAAAAABAE)
