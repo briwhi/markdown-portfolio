@@ -1,1 +1,1 @@
-https://www.linkedin.com/in/brian-whiteley/
+[Brian Whiteley](https://www.linkedin.com/in/brian-whiteley/)
